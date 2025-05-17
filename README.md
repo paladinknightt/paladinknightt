@@ -1,7 +1,7 @@
-![](https://file.garden/Z5Uwg5B-RwipIeJ4/Untitled8_20250425140837.png)
+![](https://file.garden/Z5Uwg5B-RwipIeJ4/ddqkmbm-4d271077-25e1-4dbf-b49c-1c71a5b98158.png)
 <p align= "center">
- leorio kisser n lover 
+ moraxx ⠀he⠀they⠀ageteen
 </p>
 <p align= "center">
-#REAL.
+main links under my profile 
 </p>
