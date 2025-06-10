@@ -1,4 +1,4 @@
-![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/87f1d34d-2002-4608-b166-a5c6fac0f344/denj4zr-8abfdc78-91ee-4fb8-88b7-d4abb9847ce5.png/v1/fill/w_1920,h_1190/granger_lighborn_mlbb_png_transparan_by_dechunf_denj4zr-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MTE5MCIsInBhdGgiOiJcL2ZcLzg3ZjFkMzRkLTIwMDItNDYwOC1iMTY2LWE1YzZmYWMwZjM0NFwvZGVuajR6ci04YWJmZGM3OC05MWVlLTRmYjgtODhiNy1kNGFiYjk4NDdjZTUucG5nIiwid2lkdGgiOiI8PTE5MjAifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.R5Q4Kh7nCWP2qQyiTls-ekjzdmuUvs8PPiFuk6Bojgg)
+![](https://file.garden/Z5Uwg5B-RwipIeJ4/Untitled1_20250609172747.png)
 <p align= "center">
  moraxx ⠀he⠀they⠀ageteen
 </p>
