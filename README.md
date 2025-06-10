@@ -3,6 +3,6 @@
  moraxx ⠀he⠀they⠀ageteen
 </p>
 <p align= "center">
-rentry⠀(reworked⠀might⠀take⠀a⠀while)
+rentry⠀reworked⠀(might⠀take⠀a⠀while)
 </p>
 
