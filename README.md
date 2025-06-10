@@ -3,6 +3,6 @@
  moraxx ⠀he⠀they⠀ageteen
 </p>
 <p align= "center">
-main links under my profile 
+rentry⠀(reworked⠀might⠀take⠀a⠀while)
 </p>
 
