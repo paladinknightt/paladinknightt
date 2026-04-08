@@ -3,6 +3,6 @@
  moraxx ⠀he⠀they⠀ageteen
 </p>
 <p align= "center">
-[rentry](https://rentry.co/moraxx1ums)⠀
+https://rentry.co/moraxx1ums
 </p>
 
