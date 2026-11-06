@@ -1,4 +1,4 @@
-![](https://file.garden/Z5Uwg5B-RwipIeJ4/Untitled101_20251213090109.png)
+![]([https://file.garden/Z5Uwg5B-RwipIeJ4/Untitled101_20251213090109.png](https://file.garden/Z5Uwg5B-RwipIeJ4/dad98a44d5c4dfce97608a0902e36b17-removebg-preview.png))
 <p align= "center">
  moraxx ⠀he⠀they⠀ageteen
 </p>
