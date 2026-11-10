@@ -7,5 +7,5 @@
 </p>
 
 <p align="center">
-  https://rentry.co/moraxx1ums
+  rentry wip (again)
 </p>
